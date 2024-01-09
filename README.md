@@ -1,1 +1,1 @@
-# yijungminportfolio
+# yijungmin
